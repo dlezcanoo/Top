@@ -1,0 +1,2 @@
+# Top
+I'm an International Business Professional that loves Marketing, I currently work as a SEO junior, I like to write, read, and learn every day and I love Digital Marketing. I work for a telecommunications company and we have a project with Top Bundles an Authorized retailer with great deals for Internet, Tv, telephone and security systems. You can also go and check my web site projetc: https://top-bundles.com
